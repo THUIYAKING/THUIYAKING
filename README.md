@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 front-end developer<br>⚡ Code Scientist👽
+🔭 <br>⚡ Code Scientist👽
 
 
 ## 🌐 Socials:
