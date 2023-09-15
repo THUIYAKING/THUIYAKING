@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 <br>⚡ Code Scientist👽
+🔭 <br>⚡ Its difficult but ill manage
 
 
 
