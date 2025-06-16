@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 <br>⚡ Its difficult but ill manage
+🔭 <br>⚡Manage
 
 
 
